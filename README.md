@@ -36,9 +36,9 @@ By joining through **AMPLIVO**, you become part of a global community committed 
 
 ---
 
-🔗 **Join Now:** [https://amplivo.com/sponsor/Santos43](https://amplivo.com/sponsor/Santos43)
-🌐 **My Website:** [https://oeuaqui.com.br/nuno-santos-01/](https://oeuaqui.com.br/nuno-santos-01/)
-💰 **Financial Education:** [https://www.nunosantos.in](https://www.nunosantos.in)
+🔗 **Join Now:** [https://amplivo.com/sponsor/Santos43
+🌐 **My Website:** [https://oeuaqui.com.br/nuno-santos-01/
+💰 **Financial Education:** [https://www.nunosantos.in
 💳 **Revolut Referral:** [https://revolut.com/referral/?referral-code=nuno6iy7e!JUN2-25-AR-H1-GPT\&geo-redirect](https://revolut.com/referral/?referral-code=nuno6iy7e!JUN2-25-AR-H1-GPT&geo-redirect)
 📞 **WhatsApp:** [https://wa.me/4915738781997](https://wa.me/4915738781997)
 📢 **Telegram:** [https://telegram.org/dl](https://telegram.org/dl)
